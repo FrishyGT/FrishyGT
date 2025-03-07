@@ -1,1 +1,1 @@
-i fuck people
+Hi im frish and i make gorilla tag mods
